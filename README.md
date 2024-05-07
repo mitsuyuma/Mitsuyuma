@@ -1,8 +1,8 @@
 ### seja bem-vindo ao meu perfil! ❤️
 
+Meu nome giovanna andrade
 
-
-
+-estou estou
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
